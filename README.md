@@ -1,3 +1,3 @@
-# Guilherme Alessi Ienke - 1 E
+# Guilherme Alessi Ienke - 1ºE
 
 https://fbi-pixel.github.io/trabalho-escola/
